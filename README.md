@@ -1,1 +1,1 @@
-# resource-rizkiamr-com
+# s-rizkiamr-com
